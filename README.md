@@ -111,10 +111,7 @@
 ![1dbf9f43d72c7aaf7064e6818b4360630aa4d520](https://github.com/user-attachments/assets/0be7d360-8282-420c-b432-d90b28a9ca9e)
 ![dgmi9ay-6b1729db-ec15-405d-a847-c1d3b39a58eb](https://github.com/user-attachments/assets/dcb368ec-d072-4ad0-8756-8e043ca8e442) ![image](https://github.com/user-attachments/assets/8c9f692b-5d21-4db2-b047-839b77fea5e2) ![image](https://github.com/user-attachments/assets/1ba19326-436d-4b1c-b491-56e82acc8047) ![image](https://github.com/user-attachments/assets/1675466b-0840-440b-8346-9e8f39cb4861) ![image](https://github.com/user-attachments/assets/512ba05d-31ab-4048-8311-22ef8c319415) ![image](https://github.com/user-attachments/assets/f4643b74-d4bc-40e6-8731-7af3fa521696) ![image](https://github.com/user-attachments/assets/fbc04fcc-6919-434d-a4e8-c216846bd844) ![image](https://github.com/user-attachments/assets/fc58b464-cd6d-4083-bea3-b9c1c6c81b80) ![image](https://github.com/user-attachments/assets/4789a64b-d81b-42d0-8680-e45f78c839e0) ![image](https://github.com/user-attachments/assets/25281f45-a105-4312-abea-d8c4b96e2f8d) ![image](https://github.com/user-attachments/assets/bc1e7fde-6dd6-46d5-bd9e-192dbdd4cb3b) ![image](https://github.com/user-attachments/assets/e4e30fc4-35c4-489b-a3d3-4242aa0c94df)  ![sazakg](https://github.com/user-attachments/assets/05bb1b9e-0c64-4baa-8dcb-9ed56e76ab0d)
 ![Untitled8-20240128160110-1-1](https://github.com/user-attachments/assets/199b2d95-9eaf-459a-ae80-aa6fe79c8f06)
-![d4nn6pl-fe26d1c0-0a49-499f-b1cd-1ca9ecb29d51](https://github.com/user-attachments/assets/11e19159-5ef4-47f8-91c9-abb2fab47b76) ![d1ts2sd-cb195271-655f-4bdc-83ab-210cb64d6b49](https://github.com/user-attachments/assets/97ae52a6-632e-4fcc-ac76-f87200d234bf)
-
-
-
+![d4nn6pl-fe26d1c0-0a49-499f-b1cd-1ca9ecb29d51](https://github.com/user-attachments/assets/11e19159-5ef4-47f8-91c9-abb2fab47b76) ![d1ts2sd-cb195271-655f-4bdc-83ab-210cb64d6b49](https://github.com/user-attachments/assets/97ae52a6-632e-4fcc-ac76-f87200d234bf) ![68747470733a2f2f66696c65732e636174626f782e6d6f652f7434696573342e676966](https://github.com/user-attachments/assets/128dbd1a-662b-4cae-bf4e-60210bce52cc)
 
 
 
@@ -134,6 +131,14 @@
 
 
 
+![](https://komarev.com/ghpvc/?username=luvshe&color=ff69b4)
+
+
+
+
+
+
+![littlest-pet](https://github.com/user-attachments/assets/14dff56c-c2e6-4b15-b7cd-caeba9a98e7d)
 
 
 
