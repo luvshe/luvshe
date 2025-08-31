@@ -1,4 +1,5 @@
-<div align="center"><img width="809" height="514" alt="image" src="https://github.com/user-attachments/assets/55fe8ad6-0919-4ecb-aefe-6cb491bc9119" />
+<div align="center"><img width="809" height="432" alt="image" src="https://github.com/user-attachments/assets/a64f2f48-8a42-4dc3-a0ea-e7c753887c92" />
+
 
 
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=luvshe&label=　　classroom　.　　&color=5C5B18&style=flat" alt="luvshe" />
@@ -7,7 +8,7 @@
 
 going ta redesign both of these,,,
 
-<img width="809" height="101" alt="image" src="https://github.com/user-attachments/assets/ba419ea9-8694-4732-b009-ec6b91e15931" />
+<img width="809" height="66" alt="image" src="https://github.com/user-attachments/assets/aa83841a-f341-4e8c-8b8b-062f6a2111b2" />
 
 : PONYTOWN STATUS !!
 
