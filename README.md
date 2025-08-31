@@ -8,6 +8,8 @@
 
 going ta redesign both of these,,,
 
+I FOLLOW BACK !
+
 <img width="809" height="66" alt="image" src="https://github.com/user-attachments/assets/aa83841a-f341-4e8c-8b8b-062f6a2111b2" />
 
 : PONYTOWN STATUS !!
