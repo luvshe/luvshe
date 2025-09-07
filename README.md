@@ -4,7 +4,7 @@
 
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=luvshe&label=　　classroom　.　　&color=5C5B18&style=flat" alt="luvshe" />
   
-[strawpage](https://pluuhhshe.straw.page)  •  [guestbook](https://she.atabook.org)
+[strawpage](https://pluuhhshe.straw.page)  •  (insert guestbook)
 
 going ta redesign both of these,,,
 
