@@ -31,9 +31,5 @@
 
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/284ab715-089b-49f1-b69e-1cbbca643d13" />
 
-![tumblr_91aeaf7d36ba1a838da44b81b750813d_0e579a80_250](https://github.com/user-attachments/assets/660f38db-6b20-41e5-a374-5bb3956dedd4)
-
-
-
 
 
