@@ -7,10 +7,11 @@
 
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=luvshe&label=　　apples+in+the+tree　　&color=a9becd&style=flat" alt="luvshe" />
 
-! I FOLLOW BACK !
+![tumblr_a7258473a4ff1111dc01da98691347c9_1c932f83_75](https://github.com/user-attachments/assets/d1756213-15d0-47e6-b568-a51a8e9fdada)!  I FOLLOW BACK ![tumblr_c22107c65b84f94c4c83be6c32f0c85c_eca668d7_75](https://github.com/user-attachments/assets/fb2184fb-5064-4169-8d0b-ee56c40f2676)
  
 
 [strawpage](https://luvshe.straw.page)  •  (insert guestbook) • (insert somethinf else)
+
 
 
 
@@ -21,6 +22,7 @@
 ⛔(busy): afk/offtab/semi offtab}
 
 ![image](https://github.com/user-attachments/assets/9df79884-90c8-47bf-93d3-501945b6e2c8)
+
 
 
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/5960bf31-c75c-4803-84c5-2d59003e65b1" />
