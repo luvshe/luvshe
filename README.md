@@ -36,3 +36,4 @@
 <img width="99" height="56" alt="ge" src="https://github.com/user-attachments/assets/f63b0f62-fdbb-45f1-8b22-f59e8b1a5135" />
 
 
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31gxlauhrwm7tk3datjb2afdqqii&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&profanity=false&bar_color=53b14f&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31gxlauhrwm7tk3datjb2afdqqii&redirect=true)
