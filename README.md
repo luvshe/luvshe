@@ -10,7 +10,7 @@
 ![tumblr_a7258473a4ff1111dc01da98691347c9_1c932f83_75](https://github.com/user-attachments/assets/d1756213-15d0-47e6-b568-a51a8e9fdada)!  I FOLLOW BACK ![tumblr_c22107c65b84f94c4c83be6c32f0c85c_eca668d7_75](https://github.com/user-attachments/assets/fb2184fb-5064-4169-8d0b-ee56c40f2676)
  
 
-[strawpage](https://luvshe.straw.page)  •  (insert guestbook) • (insert somethinf else)
+[strawpage](https://luvshe.straw.page)  •  [guestbook](https://mrbeastsbasement.atabook.org) • (insert somethinf else)
 
 
 
