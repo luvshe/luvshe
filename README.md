@@ -15,11 +15,25 @@
 
 
 
-🟢(online): active and playing !!
+<img width="23" height="22" alt="image" src="https://github.com/user-attachments/assets/5f989ed7-5e2a-4786-b3e0-e598738f5c4f" />
+(looking-for-chat): active and playing !! (pls talk to me im so lonely i promise i donf bite)
 
-🌙(away): semi/offtab, usually doing homework, i do occasionally look at ponytown so i dont get kicked!!
 
-⛔(busy): afk/offtab/semi offtab}
+.
+
+<img width="23" height="22" alt="image" src="https://github.com/user-attachments/assets/ec234fc1-06ad-46ae-8375-854d08860b1e" />
+(away): semi/offtab, usually doing homework, i do occasionally look at ponytown so i dont get kicked!!
+
+.
+
+<img width="23" height="22" alt="image" src="https://github.com/user-attachments/assets/23be8f9d-df0d-4271-8ea9-9834c2fa6365" />
+(busy): afk/offtab/semi offtab}
+
+
+.
+
+
+
 
 ![image](https://github.com/user-attachments/assets/9df79884-90c8-47bf-93d3-501945b6e2c8)
 
